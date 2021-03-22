@@ -1,0 +1,2 @@
+# BhajpaTracker
+Bharat mata ki Jai. Vande mataram, This is a toolkit to fight against Sanghis. Responsibility for any content added by any contributor lies with that particular contributor. Anti-National, Anti India content will not be tolerated. If by chance any of that content does end up here inspite of our best efforts to moderate, the person/organization committing the content is responsible.  
